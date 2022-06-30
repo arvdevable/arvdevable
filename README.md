@@ -12,5 +12,5 @@ Hi, I'm arvdevable. I'm a multi-genre music producer, music -- or story writer, 
 
 ### WIPs
 
-- **"Shy Sky"** novel.
+- A novel, I think I messed up.
 - **"lifelike"** project, mid 2023.
