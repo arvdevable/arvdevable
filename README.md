@@ -14,3 +14,22 @@ Hi, I'm arvdevable. I'm a multi-genre music producer, music -- or story writer, 
 
 - A novel, I think I messed up.
 - **"lifelike"** project, mid 2023.
+
+---
+### Genres I Can Make;
+
+- hardstyle,
+- future bass,
+- tech house,
+- experimental,
+- and probably more.
+
+---
+
+#### Contact:
+ > **Discord** : arvdevable#7490\
+ > **E-mail** : arvdevinfo@gmail.com
+
+#### Donate!
+ > **Ko-Fi** _https://ko-fi.com/arvdevable_ \
+ > **Buy Me A Coffee** _https://www.buymeacoffee.com/arvdevable_
