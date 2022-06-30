@@ -1,5 +1,5 @@
 ### Hey there!
-Hi, I'm arvdevable. I'm a multi-genre music producer, music -- or story writer, photographer, and a time consumer being.
+Hi, I'm arvdevable. I'm a multi-genre music producer, music -- or story writer, photographer, graphic designer (I think), and a time consumer being.
 
 ---
 
