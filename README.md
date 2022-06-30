@@ -1,4 +1,16 @@
 ### Hey there!
 Hi, I'm arvdevable. I'm a multi-genre music producer, music -- or story writer, photographer, and a time consumer being.
 
-**YouTube Page** > (arvdevable)[https://www.youtube.com/channel/UCsIgt8oSymSl3MzS5bBoTtQ]
+---
+
+**YouTube Page** > [arvdevable ♪](https://www.youtube.com/c/arvdevable)\
+**Spotify Artist** > [arvdevable️](https://open.spotify.com/artist/6kJ2RLRq825l8lApyUDWIo)\
+**Twitter** > [@arvdevable](https://twitter.com/arvdevable)\
+**Lifelight Records** > [Official Site](https://home.lifelight.repl.co/podcast.html)
+
+---
+
+### WIPs
+
+- **"Shy Sky"** novel.
+- **"lifelike"** project, mid 2023.
