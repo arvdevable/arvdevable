@@ -1,7 +1,9 @@
 ### Hey there!
-Hi, I'm arvdevable. I'm a multi-genre music producer, music -- or story writer, photographer, graphic designer (I think), and a time consumer being.
+Hi, I'm lumiscape (w.k.a. arvdevable). I'm a multi-genre music producer, music -- or story writer, photographer, graphic designer (I think), and a time consumer being.
 
 ---
+
+*[will be updated soon]*
 
 **YouTube Page** > [arvdevable ♪](https://www.youtube.com/c/arvdevable)\
 **Spotify Artist** > [arvdevable️](https://open.spotify.com/artist/6kJ2RLRq825l8lApyUDWIo)\
@@ -9,26 +11,20 @@ Hi, I'm arvdevable. I'm a multi-genre music producer, music -- or story writer, 
 **Lifelight Records** > [Official Site](https://home.lifelight.repl.co/podcast.html)
 
 ---
+### Things I Can Make;
 
-### WIPs
-
-- A novel, I think I messed up.
-- **"lifelike"** project, mid 2023.
-
----
-### Genres I Can Make;
-
-- hardstyle,
-- future bass,
-- tech house,
-- experimental,
+- hmusic,
+- novels,
+- short writings,
+- creative,
+- graphic designs,
 - and probably more.
 
 ---
 
 #### Contact:
- > **Discord** : arvdevable#7490\
- > **E-mail** : arvdevinfo@gmail.com
+ > **Discord** : lumiscapemusic\
+ > **E-mail** : lumiscapeid@gmail.com
 
 #### Donate!
  > **Ko-Fi** _https://ko-fi.com/arvdevable_ \
