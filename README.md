@@ -1,30 +1,36 @@
 ### Hey there!
-Hi, I'm lumiscape (w.k.a. arvdevable). I'm a multi-genre music producer, music -- or story writer, photographer, graphic designer (I think), and a time consumer being.
+Hi, I'm Blasius Nafiri Marvin (w.k.a. arvdevable). I'm a multi-genre music producer, novelist, photographer, graphic designer (I think), and a time consumer being.
 
 ---
 
 *[will be updated soon]*
 
-**YouTube Page** > [arvdevable ♪](https://www.youtube.com/c/arvdevable)\
-**Spotify Artist** > [arvdevable️](https://open.spotify.com/artist/6kJ2RLRq825l8lApyUDWIo)\
-**Twitter** > [@arvdevable](https://twitter.com/arvdevable)\
-**Lifelight Records** > [Official Site](https://home.lifelight.repl.co/podcast.html)
+**song stuff on yt** > [Axelleondrugs*](https://www.youtube.com/@axlodfr)\
+**all of my songs that ever been released** > [spotify playlist](https://open.spotify.com/playlist/5Kpe2pRr9Z6cxUl47OZR4V)\
 
 ---
-### Things I Can Make;
+### things i can make
 
-- hmusic,
-- novels,
-- short writings,
-- creative,
-- graphic designs,
-- and probably more.
+- music,
+- webdev stuff,
+- graphic design,
+- geometry dash :3
+- novels
+- probs more i guess
+
+### things i had made
+
+just few things i'll list here, i'll make a site about this really soon.
+
+- record labels
+- songs
+- more ig
 
 ---
 
 #### Contact:
- > **Discord** : lumiscapemusic\
- > **E-mail** : lumiscapeid@gmail.com
+ > **Discord** : axelleondrugs\
+ > **E-mail** : bnmarv004@gmail.com
 
 #### Donate!
  > **Ko-Fi** _https://ko-fi.com/arvdevable_ \
